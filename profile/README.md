@@ -58,6 +58,8 @@
 
 <p><strong>1. Hilarious Scenarios</strong></p>
 
+![photo_2024-11-18_21-33-24](https://github.com/user-attachments/assets/9d8194a7-54a2-4876-8dd6-43f7a8ece465)
+
 <p>Step into ridiculous situations that challenge traditional parenting norms, from kids setting the kitchen on fire to teaching them &ldquo;life lessons&rdquo; in the most unconventional ways.</p>
 
 <p><strong>2. Quirky Characters</strong></p>
